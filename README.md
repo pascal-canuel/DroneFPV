@@ -11,3 +11,4 @@
 | DYS 3045 3 Inch | 1.36g * 4 | 4.01$ | ![](https://img.staticbg.com/thumb/large/oaupload/banggood/images/58/05/3cb85aaf-9260-4111-bbb6-2113e7d7e2d8.jpg) |
 | Flysky i6S | - | 84.43$ | ![](http://www.hobbiesandtoys.co.nz/wp-content/uploads/2017/01/e21ba638-eacf-db02-de5a-39ab961e8620.jpg) |
 | Eachine EV800D | - | 119.28$ | ![](https://www.studiosport.fr/upload/image/casque-fpv-eachine-ev800d-p-image-189601-grande.jpg) |
+| Total: | 117.41g | 181.54$ - 385.25$ (with Flysky & Eachine) | - | 
